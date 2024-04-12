@@ -1,5 +1,5 @@
 • ★  bingsuz !!  he/him  🖇️  18  
-https://songofsparrows.carrd.co/
+https://bingsuz.carrd.co/
 moon girls & dreamies ★﹒  
 
 <!---
